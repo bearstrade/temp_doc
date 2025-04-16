@@ -26,3 +26,5 @@
 1. [BNO News](https://bnonews.com/index.php/2025/04/2-service-members-killed-1-seriously-injured-in-military-vehicle-crash-near-el-paso-texas/)
 2. [Fox 10 Phoenix](https://www.fox10phoenix.com/news/us-service-members-killed-hurt-vehicle-accident-us-mexico-border)
 3. [Military.com](https://www.military.com/daily-news/2025/04/16/2-marines-killed-one-serious-condition-after-vehicle-incident-during-southern-border-mission.html)
+---
+https://www.perplexity.ai/page/2-service-members-killed-in-ac-7tKnKuLGRN.uDiKcSdPYrA#af3917b5-109e-4ddf-ac0c-e358bffdba0d
